@@ -7,4 +7,5 @@ Bùi Mai Khoa
 Đặng Nguyễn Mạnh Huỳnh
 alooo vô đii ae
 xin chào tui là tài đụt
-mọi người chia nhau ra làm nha
+tui là tuấn du cháu bà 7 đu
+tui là mạnh huỳnh đại ca th du
